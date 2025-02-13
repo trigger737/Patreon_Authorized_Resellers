@@ -1,0 +1,1 @@
+# Patreon_Authorized_Resellers
